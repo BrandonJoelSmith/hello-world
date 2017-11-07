@@ -2,4 +2,4 @@
 
 Hello,
 
-I'm Brandon Smith. Not much else to say.
+I'm Brandon Smith. Not really anything else to say.
